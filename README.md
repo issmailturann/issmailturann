@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @issmailturann
+- 👀 I’m interested in marketing and software relationship
+- 🌱 I’m currently learning Java
+- 📫 How to reach me ismailsafa.turan@dopingtech.net
